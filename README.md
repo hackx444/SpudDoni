@@ -1,2 +1,0 @@
-# SpudDoni
-KUMPIR I MERDHIM
